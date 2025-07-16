@@ -1,1 +1,1 @@
-# YENİ & ŞİMŞEK Hukuk Bürosu Sitesi
+# YENİ & ŞİMŞEK Hukuk Bürosu Sitesi - Temiz Sürüm
